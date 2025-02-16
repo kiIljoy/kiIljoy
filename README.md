@@ -31,12 +31,12 @@ _❝'Cause your face is all I need to stay sane❞_   ‎ ‎  ‎ ‎ -  ‎ �
 
 ꕀ
 
-「 [_Tiktok_](https://www.tiktok.com/@lnyeccion?is_from_webapp=1&sender_device=pc) 」
+ 【 [_Tiktok_](https://www.tiktok.com/@lnyeccion?is_from_webapp=1&sender_device=pc) 】
 
 ꕀ
 
 
-〈 [**_Straw_**](https://66q.straw.page) 〉
+【  [**_Straw_**](https://66q.straw.page)  】
 
 # Other
 
