@@ -5,6 +5,12 @@
 
 ![giphy (3)](https://github.com/user-attachments/assets/1a140669-5439-4187-a0c4-943476bd285f)
 
+
+ꕀ
+
+
+
+
 **_Nicolas_** ⌇ _Dimitri_ ⌇ **Gee**
 
 
@@ -43,6 +49,8 @@ _I_ **use** **_dniuf_** _when I'm whit_ **my** **_boyfriend!_**
 ︼
 
 
-![image](https://github.com/user-attachments/assets/3f3eca61-bb7f-448f-9947-2ce9a753e664)
 
-  
+
+
+  ![1776491_b113c](https://github.com/user-attachments/assets/8b993013-bbb5-49ad-a147-755436721e8b)
+
