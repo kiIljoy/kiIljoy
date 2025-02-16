@@ -43,7 +43,7 @@ _❝'Cause your face is all I need to stay sane❞_   ‎ ‎  ‎ ‎ -  ‎ �
 ︻
 
 
-_I_ **use** **_dniuf_** _when I'm whit_ **my** **_boyfriend!_**
+_I use_ **_dniuf_** _when I'm whit_ **my** **_boyfriend!_**
 
 
 ︼
