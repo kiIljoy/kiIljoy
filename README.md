@@ -19,17 +19,30 @@ _❝'Cause your face is all I need to stay sane❞_   ‎ ‎  ‎ ‎ -  ‎ �
 
 
    # Links
+
+   
  【  [**_Instagram_**](https://www.instagram.com/nercofago/) 】
 
 ꕀ
 
-「 [Tiktok](https://www.tiktok.com/@lnyeccion?is_from_webapp=1&sender_device=pc) 」
+「 [_Tiktok_](https://www.tiktok.com/@lnyeccion?is_from_webapp=1&sender_device=pc) 」
 
 ꕀ
 
 
-# [**_Straw_**](https://66q.straw.page)
+〈 [**_Straw_**](https://66q.straw.page) 〉
+
+# Other
+
+︻
 
 
+_I_ **use** **_dniuf_** _when I'm whit_ **my** **_boyfriend!_**
+
+
+︼
+
+
+![image](https://github.com/user-attachments/assets/3f3eca61-bb7f-448f-9947-2ce9a753e664)
 
   
