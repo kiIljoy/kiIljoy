@@ -11,9 +11,6 @@
 
 
 
-**_Nicolas_** ⌇ _Dimitri_ ⌇ **Gee**
-
-
 _❝'Cause your face is all I need to stay sane❞_   ‎ ‎  ‎ ‎ -  ‎ ‎ ‎ ‎   **_Frank Iero_**
 
 
