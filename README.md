@@ -49,5 +49,5 @@ _I use_ **_dniuf_** _when I'm whit_ **my** **_boyfriend!_**
 
 
 
-  ![1776491_b113c](https://github.com/user-attachments/assets/8b993013-bbb5-49ad-a147-755436721e8b)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dsfo6hayd34vhqg7gfgqax4vra&cover_image=true&theme=natemoo-re&show_offline=false&background_color=5e5050&interchange=false&bar_color=544545&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
