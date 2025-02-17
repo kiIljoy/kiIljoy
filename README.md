@@ -17,7 +17,7 @@ _❝'Cause your face is all I need to stay sane❞_   ‎ ‎  ‎ ‎ -  ‎ �
 
 ꒰  **_Ask me_** _4_ **_Insp_** ꒱
 
-+ _**minor_** - **thirteen**
++  **_minor_** - **thirteen**
 
 ↳
   _basic_ **_dni_** **criteria**  _c + h_ ,  **_w2i_**
