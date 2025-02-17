@@ -5,10 +5,9 @@
 
 ![giphy (3)](https://github.com/user-attachments/assets/1a140669-5439-4187-a0c4-943476bd285f)
 
+‿‿‿‿
 
-ꕀ
-
-
+ _Ryu_ , **Gee**
 
 
 _❝'Cause your face is all I need to stay sane❞_   ‎ ‎  ‎ ‎ -  ‎ ‎ ‎ ‎   **_Frank Iero_**
@@ -48,7 +47,7 @@ _I use_ **_dniuf_** _when I'm whit_ **my** **_boyfriend!_**
 ︼
 
 
-
++ _I will always use or you will see me with ponies from_ **_musicians_**, _I am most of the time_ **afk** _4 leaving the game open._ _I have no problem if you are from any_ **_fandom_**
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dsfo6hayd34vhqg7gfgqax4vra&cover_image=true&theme=natemoo-re&show_offline=false&background_color=5e5050&interchange=false&bar_color=544545&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
