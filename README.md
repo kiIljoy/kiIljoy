@@ -29,7 +29,7 @@
 
 ꕀ
 
- 【 [_Tiktok_](https://www.tiktok.com/@lnyeccion?is_from_webapp=1&sender_device=pc) 】
+
 
 ꕀ
 
